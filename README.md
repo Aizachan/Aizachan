@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my teacher.
 - 📫 How to reach me message me sa akong fb Aiza P. Janlay ang profile kay ANIME HEHEHEH.
 - 😄 Pronouns: Whatasiwa master duse hahahaha joke just call me gang.
-- ⚡ Fun fact: I always overthing hahahaha.
+- ⚡ Fun fact: I always overthink hahahaha.
 
 <!---
 Aizachan/Aizachan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
